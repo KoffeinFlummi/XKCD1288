@@ -16,3 +16,7 @@ Also http://xkcd.com/1418/
 ---
 
 ![](http://i.imgur.com/992aoSW.png)
+
+---
+
+![](http://i.imgur.com/pu2VI86.png)
